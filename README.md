@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning master of computer application
 
-- 📫 How to reach me nehaantonyk@gmail.com
+- 📫 How to reach me nehaharidas.m@gmail.com
 
 - ⚡ Fun fact :- Love to Explore
 
